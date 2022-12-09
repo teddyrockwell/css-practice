@@ -1,2 +1,2 @@
 # css-practice
-fluent in swahili
+fluent in swaghili

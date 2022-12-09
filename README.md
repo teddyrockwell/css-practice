@@ -1,2 +1,2 @@
 # css-practice
-getting those reps up
+fluent in swahili
